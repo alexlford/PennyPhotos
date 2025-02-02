@@ -1,1 +1,1 @@
-Click on the photos
+Click on the photos to view.
